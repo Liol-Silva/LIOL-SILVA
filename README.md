@@ -8,3 +8,5 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @alurastartestudante
+
+![](https://tenor.com/pt-BR/view/funny-animals-crazy-dog-dance-silly-dog-gif-13468238)
